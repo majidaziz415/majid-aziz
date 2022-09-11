@@ -1,1 +1,1 @@
-# majid-aziz
+# vipscholarships
